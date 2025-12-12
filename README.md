@@ -37,12 +37,7 @@ I focus on creating apps that are beautiful, performant, and user-centric — fr
 
 **BS in Computer Engineering**  
 _Sir Syed University of Engineering and Technology (2020 – 2024)_  
-CGPA: 2.5 / 4.0
 
-**Intermediate (Pre-Engineering)** — 79%  
-**Matriculation (Science)** — 69%
-
----
 
 ## 📚 Publication
 
